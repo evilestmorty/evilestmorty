@@ -2,4 +2,6 @@
 
 mortycest monoshipper or whatever
 
-id prefer rickorty shippers to not interact thanks
+rickorty shippers iwc
+
+im not very social but i enjoy talking about things i like. i dont interact first but please interact
