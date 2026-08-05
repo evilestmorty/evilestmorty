@@ -4,4 +4,4 @@ mortycest monoshipper or whatever
 
 rickorty shippers iwec
 
-i never ever interact first but i like making friends, im not good at keeping conversation though so i apologize if i act awkward or uninterested
+i never ever interact first but i like making friends, im not good at keeping conversation though so i apologize if i act awkward or uninterested. 😅
