@@ -1,8 +1,1 @@
-<div align="center"><img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/bd9299be-87c2-4487-98c4-2e7381f12d6b" /><img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/4448759a-c2ca-48ed-a26c-bb18ea03288a" />
-
-mortycest monoshipper
-
-rickorty dooo notttt interact
-
-i never ever interact first but i like making friends, im not good at 
-keeping conversation though so i apologize if i act awkward or uninterested. 😅
+<div align="center"><img width="200" height="116" alt="Image" src="https://github.com/user-attachments/assets/6a103b70-d519-4189-9d95-ff5d9c58f73e" />    <img width="200" height="116" alt="Image" src="https://github.com/user-attachments/assets/1a9190a0-4535-4e23-b220-a6c4dc705592" />
